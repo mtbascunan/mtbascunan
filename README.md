@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mtbascunan
 - 👀 I’m interested in technological & challenging projects in the marketing area
-- 🌱 I’m currently learning Apple Search Ads
+- 🌱 Experience in Market Research, Google Ads, FB Ads & Apple Search Ads
 - 💞️ I’m looking to collaborate on projects powered by Artificial Intelligence
 - 📫 How to reach me mariateresabascunan@gmail.com 
 
